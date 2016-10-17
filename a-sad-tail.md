@@ -8,3 +8,5 @@ begin, and let me assure you he will DEFINITELY NOT DIE!
 Then Rick cloned Joffrey and killed him again over and over for a thousand years.
 
 Rick decided a thousand years was good enough. Alex resumed killing Joffrey for the following thousand years.
+
+We figured it out - so we killed them all.
